@@ -7,3 +7,5 @@ Many people think that mobile phones should be banned in public places such as l
 Some countries have introduced legislation to restrict the number of hours employees can work each day. Do you think this is a positive or negative development?
 
 Some people believe that the best way to improve road safety is to raise the minimum age for driving cars and motorcycles. To what extent do you agree or disagree?
+
+You have noticed some students from your college engaging in a dangerous activity outside the college grounds. Write a letter to the principal of your college.
